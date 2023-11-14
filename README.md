@@ -1,1 +1,0 @@
-# minalhassan.github.io
